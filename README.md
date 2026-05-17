@@ -97,4 +97,4 @@ Estabilidade e Smart Grid: Proteção da infraestrutura local e apoio à expans�
 
 9 - Link pitch:
 
-https://_____________________
+https://youtu.be/SYtq7APDu6I
